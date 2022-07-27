@@ -4,3 +4,6 @@ https://www.roblox.com/catalog/451220849/Lavender-Updo
 https://www.roblox.com/catalog/48474294/ROBLOX-Girl-Hair
 https://www.roblox.com/catalog/62724852/Chestnut-Bun
 https://www.roblox.com/catalog/63690008/Pal-Hair
+
+Q - dance
+E - wave
